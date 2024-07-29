@@ -7,8 +7,7 @@ Sou a professora Silmara
 
 ### Você pode entrar em contato comigo 📫
 silmaravitoria@prof.educacao.sp.gov.br
-
-@silmaracosta484
+Instagram: @silmaracosta484
 
 
 ![](https://media1.tenor.com/m/0i0ZxbRgVyAAAAAd/meonly.gif)
